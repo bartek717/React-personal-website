@@ -1,2 +1,2 @@
-kowalskibartek.com
+website can be viewed at kowalskibartek.com
 
